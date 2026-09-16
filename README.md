@@ -1,2 +1,2 @@
 # Digital-Skill
-Đây là thư mục của tôi
+4956010059,Lê Ly Na Đây là repository đầu tiên.
